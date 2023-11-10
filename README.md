@@ -1,1 +1,1 @@
-# Artificial intelligence School Projects
+# Artificial Intelligence School Projects
